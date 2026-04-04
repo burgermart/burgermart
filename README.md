@@ -1,12 +1,7 @@
 <p align="center">
-  Tyler 𝜗𝜚 8teen
+  [Rentry](https://rentry.co/revbur) 𝜗𝜚 [Strawpage](wip.com) 
   <br>
 </p>
-<p align="center">
-  asd, ocd && aspd
-  <br>
-</p>
-
 ![IMG_9484](https://github.com/user-attachments/assets/c2d5483e-79e9-42fd-bc9f-54348c34eae9)
 
 
