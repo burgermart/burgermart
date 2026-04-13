@@ -1,5 +1,5 @@
 <p align="center">
-I am not a wilbur soot supporter, I jusf enjoy dsmps storyline. Along with that, I kin wilbur and yume tommy seperately.
+I am not a wilbur soot supporter, I just enjoy dsmps storyline. Along with that, I kin wilbur and yume tommy seperately.
 </p>
 
 ![IMG_1073](https://github.com/user-attachments/assets/00da48d3-404c-4378-930f-0764ab84cd34)ㅤㅤㅤㅤㅤㅤ 
