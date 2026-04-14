@@ -2,7 +2,7 @@
 I am not a wilbur soot supporter.
 </p>
 
-<img width="1087" height="783" alt="Untitled1438_20260413225000" src="https://github.com/user-attachments/assets/7b05982b-51fa-440a-bc0b-87cde28ed03f" />
+<img width="1087" height="783" alt="Untitled1440_20260413230105" src="https://github.com/user-attachments/assets/04e0949f-ca85-4fff-83ea-cfffc1f1070c" />
 <img width="1520" height="259" alt="IMG_2686" src="https://github.com/user-attachments/assets/3f6986ea-7c3f-4726-ad8a-6c9ad31c330b" />
 
 
