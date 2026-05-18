@@ -6,5 +6,5 @@
 
 
 [rentry](https://rentry.co/thediscs) ‎ ‎ ‎ ೀ ۪ ‎      [ata](https://lmanberg.atabook.org/) ‎ ‎ ‎ ೀ ۪‎            ‎[listo](https://listography.com/lmanberg) ‎ ‎ ‎ ೀ ۪
-      [prns](https://pronouns.cc/@tominnit)
+      [prns](https://pronouns.cc/@tominnit) ‎ ‎ ‎ ೀ ۪‎            ‎[revospring](https://revospring.net/@tommyinnit)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3167wo3fmhnsfyufyec2n32wqiga&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=8edcff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
